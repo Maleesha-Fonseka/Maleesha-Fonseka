@@ -1,3 +1,1 @@
-> ***Live everyday like you're about to die tomorrow,
->     Code everyday like you live forever.
->     - Gandhi(Probably)***
+> ***It doesn't matter how small it is, but try to do something new every day. :)***
